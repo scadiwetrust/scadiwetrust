@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @scadiwetrust
+- 👀 Polska marka charakteryzująca się stylem z Los Angeles.
+- 📫 [SCADI.WORLD](https://scadi.world/)
+- ⚡ contact@scadi.world
